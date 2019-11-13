@@ -1,0 +1,2 @@
+# sok-szar
+Nyilvános
